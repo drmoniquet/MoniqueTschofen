@@ -1,7 +1,7 @@
 # Monique Tschofen (Toronto Metropolitan University)
 
 The Aristotle Suites
-1. [A form] (Form privation underlying thing-Tschofen-2022.mp4)
+1. [A form, a privation, and an underlying thing - eidos, sterēsis, hupokeimenon” ] (Form privation underlying thing-Tschofen-2022.mp4](https://github.com/drmoniquet/MoniqueTschofen/blob/main/Form%20privation%20underlying%20thing-Tschofen-2022.mp4)
 3.
 4. Sketches: How can we train ourselves to see in new ways? 
 To practice visual thinking, we sketched poses in 10, 30, and 60 second intervals. 
