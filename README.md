@@ -1,6 +1,9 @@
 # Monique Tschofen (Toronto Metropolitan University)
 
-1. Sketches: How can we train ourselves to see in new ways? 
+The Aristotle Suites
+1. [A form] (Form privation underlying thing-Tschofen-2022.mp4)
+3.
+4. Sketches: How can we train ourselves to see in new ways? 
 To practice visual thinking, we sketched poses in 10, 30, and 60 second intervals. 
 - [Sketch one](https://drmoniquet.github.io/critical-making-dhsi23/sketch1.jpeg) 
 - [Sketch two](https://github.com/drmoniquet/critical-making-dhsi23/blob/main/sketch2.jpeg) 
